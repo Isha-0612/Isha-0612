@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Isha-0612
+- 👀 I’m interested in art and codings
+- 🌱 I’m currently learning advanced python and AI-ML
+- 😄 Pronouns: She/Her
